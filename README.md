@@ -20,3 +20,6 @@ Me chamo Maria Eduarda,sou estudante do Instituto Federal do Tocantins, cursando
 • estudar ( adquirir conhecimento)...
 
 ## Esportes que eu gosto:
+
+• vôlei 🏐 
+• futsal ⚽️
