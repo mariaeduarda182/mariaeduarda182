@@ -23,7 +23,3 @@ Me chamo Maria Eduarda,sou estudante do Instituto Federal do Tocantins, cursando
 
 • vôlei 🏐 
 • futsal ⚽️
-
-## Minhas redes:
-
-https://instagram.com/maria_eduarda135l?utm_source=qr&igshid=NGExMmI2YTkyZg%3D%3D
